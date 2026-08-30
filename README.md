@@ -1,5 +1,4 @@
 # CV
-OUSSAMA BOUBEKEUR 
 
 # [OUSSAMA BOUBEKEUR]
 [Algeria, Algiers] [+213674492099] | [2006algi@gmail.com]
